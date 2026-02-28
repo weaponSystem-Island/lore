@@ -1,1 +1,6 @@
 # lore
+Hiya - so... I wished to share a rather amusing tale of how the Characters Puzzle came to be.
+It occured during the _Operation Epic Fury_ (or, _She'agat Ha'ari_).
+I sat before my computer, working upon this very riddle, when every half-hour an alarm compelled me to stop, for I had to descened seven floors to my building's shelter.
+Thus it was completed - half an hour of working, half an hour of waiting in the shelter.
+I hope you relished the puzzle! :)
